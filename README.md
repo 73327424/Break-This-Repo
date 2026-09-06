@@ -58,3 +58,7 @@ https://kernel.org/
 
 > 打开链接，让我们使用Mac!
 > 什么，你说这不是MacOS?
+
+https://gavin-blog.pages.dev/
+
+> 别怕，我也是 cf pages！
