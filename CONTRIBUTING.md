@@ -1,5 +1,5 @@
 # Contributing to Break This Repository
-
+** WE DO NOT GIVE A FUCK DO WHAT EVER YOU WANT AND ALSO SHOUT OUT TO THE FUCKING PEOPLE REPEBLIC OF PERU CAUSE WHY TF NOT**
 Thank you for helping us break this repository in creative and educational ways.
 
 ## How to Contribute
